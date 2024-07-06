@@ -12,6 +12,7 @@
 - > Please don't suddenly vent to me. i might be uncomfortable.
 > Interests : Danganronpa, Southpark, Pokemon, Cookie run
 - > INT : Same fandoms, friends of friends. etc
+> I DONT LIKE BEING STARED AT, it makes me uncomfortable. virtual or reality.
 > nagito komaeda & maki harukawa kinnie. insane and cold at the same time hm?
 ![download (2)](https://github.com/kyl1xerr/kyl1xerr/assets/161707576/cfae7b3c-8115-4d0b-b1ae-8700a7f3484a)
 # DO NOT COPY MY PONYTOWN SKINS . BE ORIGINAL
