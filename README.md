@@ -15,6 +15,7 @@
 > Interests : Danganronpa, Southpark, Pokemon, Cookie run
 - > INT : Same fandoms, friends of friends. etc
 > I DONT LIKE BEING STARED AT, it makes me uncomfortable. virtual or reality.
+- > I wont accept any of your random friend requests.
 
 
 > nagito komaeda & maki harukawa kinnie. insane and cold at the same time hm?
