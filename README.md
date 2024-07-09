@@ -14,7 +14,7 @@
 - > Please don't suddenly vent to me. i will be uncomfortable.
 > Interests : Danganronpa, Southpark, Pokemon, Cookie run
 - > INT : Same fandoms, friends of friends. etc
-> I DONT LIKE BEING STARED AT, it makes me uncomfortable. virtual or reality.
+> DNI : Rude people, Pedophiles, Racists, Islamoplobic, Transphobic, Homophobic, Sexists, Weird people.
 - > I wont accept any of your random friend requests.
 
 
