@@ -20,4 +20,13 @@
 
 > nagito komaeda & maki harukawa kinnie. insane and cold at the same time hm?
 ![download (2)](https://github.com/kyl1xerr/kyl1xerr/assets/161707576/cfae7b3c-8115-4d0b-b1ae-8700a7f3484a)
-# DO NOT COPY MY PONYTOWN SKINS . BE ORIGINAL
+
+
+# PonyTown Boundaries
+
+- > Do not copy my skins, colorpick or inspo.
+> I have chat discomfort, so w2i. int if i let you so
+- > I mostly use my nagito skin or my main oc!, if you see me hi
+> Please do not randomly kiss/boop/whisper or add friend, weird
+- > you can c+h me if you want, i don't mind it !
+> Please do not replicate my shading style, be original
