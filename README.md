@@ -26,7 +26,7 @@
 
 - > Do not copy my skins, colorpick or inspo.
 > I have chat discomfort, so w2i. int if i let you so
-- > I mostly use my nagito skin or my main oc!, if you see me hi
+- > I mostly use my nagito/kokichi skin or my main oc!, if you see me hi
 > Please do not randomly kiss/boop/whisper or add friend, weird
 - > you can c+h me if you want, i don't mind it !
 > Please do not replicate my shading style, be original
