@@ -2,9 +2,9 @@
 - >  Introductions. im -
 
 # Kylixer / Izoruko
-> here are things you must know before interacting with me / RBYI . IWEC
+> Here are things you must know before interacting with me / RBYI . IWEC
 - > My pronouns are she / her, - female
-> you can make me nicknames. as long as i dont get bothered.
+> You can make/call me nicknames. as long as i dont get bothered.
 - > I'm Straight, + Aromantic. [ No romantic attraction from others. ]
 > I'm an INFJ - T, if you dont believe it its okay.
 - > I might be shy at first, but i will get along when we are close enough. [ close friends. ]
@@ -16,7 +16,7 @@
 - > INT : Same fandoms, friends of friends. etc
 > DNI : Rude people, Pedophiles, Racists, Islamoplobic, Transphobic, Homophobic, Sexists, Weird people.
 - > I wont accept any of your random friend requests.
-> i use emoticons sometimes. i also typo on purpose so i dont look dry :C
+> I use emoticons sometimes. i also typo on purpose so i dont look dry :C
 
 
 > nagito komaeda & maki harukawa kinnie. insane and cold at the same time hm?
@@ -29,5 +29,5 @@
 > I have chat discomfort, so w2i. int if i let you so
 - > I mostly use my nagito/kokichi skin or my main oc!, if you see me hi
 > Please do not randomly kiss/boop/whisper or add friend, weird
-- > you can c+h me if you want, i don't mind it !
-> Please do not replicate my shading style, be original
+- > You can c+h me if you want, i don't mind it ! [ im very lonely guys pls ]
+> Please do not replicate my shading style, be original.
