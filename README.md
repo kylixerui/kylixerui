@@ -16,6 +16,7 @@
 - > INT : Same fandoms, friends of friends. etc
 > DNI : Rude people, Pedophiles, Racists, Islamoplobic, Transphobic, Homophobic, Sexists, Weird people.
 - > I wont accept any of your random friend requests.
+> i use emoticons sometimes. i also typo on purpose so i dont look dry :C
 
 
 > nagito komaeda & maki harukawa kinnie. insane and cold at the same time hm?
