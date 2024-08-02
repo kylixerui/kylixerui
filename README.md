@@ -31,4 +31,4 @@
 > Please do not randomly kiss/boop/whisper or add friend, weird
 - > You can c+h me if you want, i don't mind it ! [ im very lonely guys pls ]
 > Please do not replicate my shading style, be original.
-- > psst!, you can ask me for help for regi / discord server [ pt hostings ] btw!, just ask me
+- > I'm the Discord server owner of overstars. a ponytown hosting server
