@@ -6,7 +6,7 @@
 - > My pronouns are she / her, - female
 > You can make/call me nicknames. as long as i dont get bothered.
 - > I'm Straight, + Aromantic. [ No romantic attraction from others. ]
-> I'm an INFJ - T, if you dont believe it its okay.
+> I'm an INFJ - T.
 - > I might be shy at first, but i will get along when we are close enough. [ close friends. ]
 > I'm the type of person that is *Sensitive* so please dont joke things about me.
 - > im emotional sometimes, might get clingy.
