@@ -8,9 +8,9 @@
 - > I'm Straight, + Aromantic. [ No romantic attraction from others. ]
 > I'm an INFJ - T.
 - > I might be shy at first, but i will get along when we are close enough. [ close friends. ]
-> I'm the type of person that is *Sensitive* so please dont joke things about me.
-- > im emotional sometimes, might get clingy.
-> I may not be good keeping up conversations.
+> I'm the type of person that is Sensitive so please dont joke things about me. or sensitive topics
+- > im emotional sometimes, might get clingy when I'm on a sad mood.
+> I may not be good keeping up conversations. I'm a dry texter.
 - > Please don't suddenly vent to me. i will be uncomfortable.
 > Interests : Danganronpa, Southpark, Pokemon, Cookie run, Dead plate, Cold Front, Elevator Hitch, Married In Red, Eloquent Countenance.
 - > INT : Same fandoms, friends of friends. etc
