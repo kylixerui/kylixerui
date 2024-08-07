@@ -12,7 +12,7 @@
 - > im emotional sometimes, might get clingy when I'm on a sad mood.
 > I may not be good keeping up conversations. I'm a dry texter.
 - > Please don't suddenly vent to me. i will be uncomfortable.
-> Interests : Danganronpa, Southpark, Pokemon, Cookie run, Dead plate, Cold Front, Elevator Hitch, Married In Red, Eloquent Countenance.
+> Interests : Danganronpa, Southpark, Pokemon, Cookie run, Dead plate, Cold Front, Elevator Hitch, Married In Red, Eloquent Countenance, Bungou stray dogs
 - > INT : Same fandoms, friends of friends. etc
 > DNI : Rude people, Pedophiles, Racists, Islamoplobic, Transphobic, Homophobic, Sexists, Weird people.
 - > I wont accept any of your random friend requests.
