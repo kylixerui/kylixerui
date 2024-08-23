@@ -8,3 +8,6 @@
 # . DNI / INT
 - https://rentry.co/IzorukoDniList
 - . . INT : Same fandom ( Mostly . ) , Nice Oc creators / Writers !
+
+
+![blinkiesCafe-6v](https://github.com/user-attachments/assets/738fcfc7-ccff-4876-9ac9-6648069c4738)
