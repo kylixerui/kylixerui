@@ -3,7 +3,7 @@
 ︶︶ INFJ . She herㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤ
                 ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤㅤ    ८ DR - BSD - SP - CF - MIR  - Fandom.
 
-> ꉂ ㅤㅤ ㅤㅤ ㅤㅤ  https://iz0oruko.straw.page/
+> ꉂ ㅤㅤ ㅤㅤ ㅤㅤ  https://iz0rukointro.straw.page
 
 # . DNI / INT
 - https://rentry.co/IzorukoDniList
