@@ -1,3 +1,3 @@
-** Just read my straw page to know abt me im lazy **
+## RBYI
 
- https://izosintro.straw.page/
+# https://izosintro.straw.page/
