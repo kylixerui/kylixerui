@@ -1,4 +1,4 @@
-## RBYI !!
+## ⤷ Read before you interact with this person !
 
 ## https://izosintro.straw.page/ | https://rentry.co/IzorukoDniList
 
