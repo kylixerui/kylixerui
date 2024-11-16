@@ -1,6 +1,6 @@
 ## ⤷ Read before you interact with this person !
 
-## https://izosintro.straw.page/ | https://rentry.co/IzorukoDniList
+## https://iqiroizorintro.straw.page | https://rentry.co/IzorukoDniList
 ## https://en.pronouns.page/@.izoorukoo2
 
 ## Guys i wont bite i swear >_< ✦ Mostly Unresponsive in ponytown Monday - Friday
