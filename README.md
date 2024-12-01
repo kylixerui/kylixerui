@@ -3,7 +3,7 @@
 ## https://iqiroizorintro.straw.page | https://rentry.co/IzorukoDniList
 ## https://en.pronouns.page/@.izoorukoo2
 
-## Guys i wont bite i swear >_< ✦ Mostly Unresponsive in ponytown Monday - Friday
+## https://izorr.atabook.org/
 > sorry if me ignoring you makes you uncomfy, I am mostly awkard and shy ≧ ﹏ ≦ ( or afk )
 
 > [!NOTE]
