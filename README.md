@@ -1,9 +1,6 @@
 ## ⤷ Read before you interact with this person !
 
-## https://iqiroizorintro.straw.page | https://rentry.co/IzorukoDniList
-## https://en.pronouns.page/@.izoorukoo2
-
-## https://izorr.atabook.org/
+https://rentry.co/iiquro1izor
 > sorry if me ignoring you makes you uncomfy, I am mostly awkard and shy ≧ ﹏ ≦ ( or afk )
 
 > [!NOTE]
